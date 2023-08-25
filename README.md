@@ -1,1 +1,1 @@
-# shyngys01.github.kz
+# shyngys01.github.io
